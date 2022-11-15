@@ -1,7 +1,3 @@
-## Hi there 👋
-
-
-
 
 
 ## 📘 Materias de Primero
